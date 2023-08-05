@@ -1,1 +1,1 @@
-# vijaytimbadiya.github.io
+# vijaytimbadiya
